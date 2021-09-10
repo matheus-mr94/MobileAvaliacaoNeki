@@ -1,0 +1,1 @@
+Aplicação mobile para avaliação da Neki IT
